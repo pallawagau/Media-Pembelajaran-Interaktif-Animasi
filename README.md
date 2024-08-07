@@ -9,4 +9,4 @@ andimuhammadpallawagau@gmail.com
 
 **Download**
 
-https://drive.google.com/drive/folders/13rgUOm6OYDC1piGUnf5eGeWmu4RPkl65?usp=sharing
+https://docs.google.com/uc?export=download&id=13rgUOm6OYDC1piGUnf5eGeWmu4RPkl65
